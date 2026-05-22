@@ -1,1 +1,0 @@
-# kimironko_parcels
